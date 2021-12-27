@@ -1,2 +1,2 @@
 # issues
-Archive of all Digital Talk issues
+Archiv aller Digital Talk Ausgaben
